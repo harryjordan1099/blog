@@ -1,5 +1,5 @@
 ---
-title: "Planning My Digital Minimalism"
+title: "Planning My Digital Minimalism (a la call newpoe)"
 date: 2026-02-06
 ---
-Test
+
