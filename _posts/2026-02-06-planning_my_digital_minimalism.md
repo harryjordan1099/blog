@@ -9,3 +9,6 @@ Screentime and being online for longer than I need to be are issues I've dealth 
 
 
 Yes I can pull certain video and websites that were fantastic but the vast majority of what I consume on the web I barely remember and don't particularly enjoy doing. None of the youtube video, tweets (are they still called that now?), reddit threads, instagram posts or porn I have consumed has mostly done more damage than good. 
+
+
+![Desk setup during my digital declutter](/assets/images/daily-average-screentime.jpeg)
